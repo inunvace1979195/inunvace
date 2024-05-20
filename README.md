@@ -1,1 +1,1 @@
-The Ford Model N, introduced in 1906, was Ford's first successful mass-produced car after the failure of earlier models like the Model A and Model B.
+The White Model M, introduced in 1905, was one of the first successful commercial trucks in the United States, featuring a robust design and powerful engine for hauling cargo.
