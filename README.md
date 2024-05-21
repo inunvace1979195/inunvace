@@ -1,1 +1,1 @@
-The White Model M, introduced in 1905, was one of the first successful commercial trucks in the United States, featuring a robust design and powerful engine for hauling cargo.
+The Mercedes 35 hp, introduced in 1901, was one of the earliest examples of a high-performance sports car, winning races and setting records in Europe and the United States.
