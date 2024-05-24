@@ -1,1 +1,1 @@
-The Pierce-Arrow Model 66, introduced in 1909, was one of the most powerful cars of its time, featuring a massive 824 cubic inch engine capable of producing 66 horsepower.
+The Stanley Steamer, introduced in 1897, was a popular steam-powered car in the early 1900s, known for its quiet operation and smooth ride quality.
