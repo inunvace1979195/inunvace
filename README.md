@@ -1,1 +1,1 @@
-The Chrysler Town & Country, introduced in 1941 but produced into the post-war period, was one of the first mass-produced wood-paneled station wagons, featuring distinctive styling and luxury amenities.
+The first modern gas station, designed specifically for automobiles, opened in 1905 in St. Louis, Missouri, offering fuel, oil, and other services to motorists.
