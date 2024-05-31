@@ -1,1 +1,1 @@
-Civilian automobile production in the United States was largely suspended during World War II, as factories were repurposed for war production and resources were redirected to support the war effort.
+The Hispano-Suiza H6, introduced in 1919 but popular in the 1920s, was a luxury car favored by royalty and aristocrats, featuring advanced engineering and exquisite craftsmanship.
