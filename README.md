@@ -1,1 +1,1 @@
-The Mercedes 35 hp, introduced in 1901, was one of the earliest examples of a high-performance sports car, winning races and setting records in Europe and the United States.
+Rationing of gasoline and rubber during World War II led to reduced driving and conservation efforts among civilians, influencing car design and fuel efficiency in subsequent years.
