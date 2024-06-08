@@ -1,1 +1,1 @@
-The Willys-Overland Jeep Station Wagon, introduced in 1946, was one of the first mass-produced all-steel station wagons, offering versatility and ruggedness for post-war families.
+The Hudson Commodore, introduced in 1941 but popular in the post-war years, was a full-size car known for its innovative "step-down" design, which lowered the car's center of gravity for improved handling.
