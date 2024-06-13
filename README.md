@@ -1,1 +1,1 @@
-The Stanley Steamer, introduced in 1897, was a popular steam-powered car in the early 1900s, known for its quiet operation and smooth ride quality.
+The Winton Bullet No. 1, built by Alexander Winton in 1903, set the land speed record of 68.18 mph, demonstrating the potential of automobiles for speed and performance.
