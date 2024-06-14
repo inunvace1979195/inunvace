@@ -1,1 +1,1 @@
-The Winton Bullet No. 1, built by Alexander Winton in 1903, set the land speed record of 68.18 mph, demonstrating the potential of automobiles for speed and performance.
+The Tucker 48, introduced in 1948, was an innovative car ahead of its time, featuring a rear-mounted engine, safety features like a padded dashboard, and unconventional styling elements like a centered headlight.
