@@ -1,1 +1,1 @@
-The Tucker 48, introduced in 1948, was an innovative car ahead of its time, featuring a rear-mounted engine, safety features like a padded dashboard, and unconventional styling elements like a centered headlight.
+World War II significantly impacted the automotive industry, with many manufacturers shifting production to wartime efforts, such as building military vehicles, tanks, and aircraft.
