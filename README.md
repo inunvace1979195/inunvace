@@ -1,1 +1,1 @@
-World War II significantly impacted the automotive industry, with many manufacturers shifting production to wartime efforts, such as building military vehicles, tanks, and aircraft.
+Electric vehicles (EVs) were popular in the early 1900s, with companies like Baker Electric and Detroit Electric producing electric cars for urban transportation.
