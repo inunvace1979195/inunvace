@@ -1,1 +1,1 @@
-The Buick Motor Company, founded in 1903, quickly became one of the largest automobile manufacturers in the United States, known for its durable and reliable cars.
+The first modern gas station, designed specifically for automobiles, opened in 1905 in St. Louis, Missouri, offering fuel, oil, and other services to motorists.
