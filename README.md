@@ -1,1 +1,1 @@
-The Hispano-Suiza H6, introduced in 1919 but popular in the 1920s, was a luxury car favored by royalty and aristocrats, featuring advanced engineering and exquisite craftsmanship.
+The Rolls-Royce Silver Ghost, introduced in 1906, set new standards for luxury and reliability in automobile design, earning a reputation as the "best car in the world."
