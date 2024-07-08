@@ -1,1 +1,1 @@
-The Nash Motors Company, founded in 1916, gained popularity in the 1920s with models like the Nash Advanced Six, known for their innovative engineering and comfortable ride.
+The Tucker 48, introduced in 1948, was an innovative car ahead of its time, featuring a rear-mounted engine, safety features like a padded dashboard, and unconventional styling elements like a centered headlight.
