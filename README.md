@@ -1,1 +1,1 @@
-The Tucker 48, introduced in 1948, was an innovative car ahead of its time, featuring a rear-mounted engine, safety features like a padded dashboard, and unconventional styling elements like a centered headlight.
+The Locomobile Company of America, founded in 1899, was one of the first American manufacturers to produce gasoline-powered automobiles, competing with steam and electric cars of the era.
