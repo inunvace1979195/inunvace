@@ -1,1 +1,1 @@
-The Locomobile Company of America, founded in 1899, was one of the first American manufacturers to produce gasoline-powered automobiles, competing with steam and electric cars of the era.
+The Packard Clipper, introduced in 1941 but produced into the post-war period, was a luxury car known for its elegant design, advanced engineering, and smooth performance.
