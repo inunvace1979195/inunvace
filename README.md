@@ -1,1 +1,1 @@
-The Packard Clipper, introduced in 1941 but produced into the post-war period, was a luxury car known for its elegant design, advanced engineering, and smooth performance.
+The Cadillac Type 61, introduced in 1924, featured a groundbreaking V8 engine, setting new standards for power and performance in luxury automobiles.
