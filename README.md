@@ -1,1 +1,1 @@
-The Cadillac Type 61, introduced in 1924, featured a groundbreaking V8 engine, setting new standards for power and performance in luxury automobiles.
+The Volkswagen Beetle, originally designed in the 1930s but produced after World War II, became one of the most iconic cars of the 20th century, known for its simplicity, reliability, and affordability.
