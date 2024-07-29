@@ -1,1 +1,1 @@
-Rationing of gasoline and rubber during World War II led to reduced driving and conservation efforts among civilians, influencing car design and fuel efficiency in subsequent years.
+The Cadillac Series 62, introduced in 1940 but produced into the post-war era, was a luxury car known for its powerful V8 engine, smooth ride, and lavish interior appointments.
