@@ -1,1 +1,1 @@
-The Pierce-Arrow Model 66, introduced in 1909, was one of the most powerful cars of its time, featuring a massive 824 cubic inch engine capable of producing 66 horsepower.
+The introduction of the Ford Model A in 1927 marked Ford's return to the market with a new, more modern car, featuring innovations like a sliding-gear transmission and hydraulic shock absorbers.
