@@ -1,1 +1,1 @@
-The introduction of the Ford Model A in 1927 marked Ford's return to the market with a new, more modern car, featuring innovations like a sliding-gear transmission and hydraulic shock absorbers.
+The Model A, produced by Oldsmobile in 1901, was the first mass-produced American car to feature an assembly line manufacturing process, streamlining production and reducing costs.
